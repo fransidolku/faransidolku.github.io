@@ -1,1 +1,1 @@
-# faransidolku.github.io
+# fransidolku.github.io
